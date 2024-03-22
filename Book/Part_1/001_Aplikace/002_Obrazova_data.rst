@@ -1,0 +1,4 @@
+Obrazová data
+=============
+
+Obrazem je cokoliv, co dokážete vnímat svým zrakem. Slovo obraz má původ v kombinaci slov vtisknutí (nebo-li ražba) a setrvalým opakováním (tudíž možnosti existence vícero podob). Vaše vnímání toho kterého obrazu se tudíž může lišit od pozorování toho kterého obrazu jiným jedincem. Proto již od dávných věků dochází k falšování ražeb různých druhů a způsobů. Faleš je čímsi, čím se snažíme připodobnit čísi snahu o hodnoty a přitom využít jejich vlastní potenciál ve vlastní prospěch na úkor prospěchu těch **"nejvyzrálejších"**, neboli původních autorů, či činitelů ražby.
