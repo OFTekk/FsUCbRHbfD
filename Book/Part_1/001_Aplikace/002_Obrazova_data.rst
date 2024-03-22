@@ -2,3 +2,7 @@ Obrazová data
 =============
 
 Obrazem je cokoliv, co dokážete vnímat svým zrakem. Slovo obraz má původ v kombinaci slov vtisknutí (nebo-li ražba) a setrvalým opakováním (tudíž možnosti existence vícero podob). Vaše vnímání toho kterého obrazu se tudíž může lišit od pozorování toho kterého obrazu jiným jedincem. Proto již od dávných věků dochází k falšování ražeb různých druhů a způsobů. Faleš je čímsi, čím se snažíme připodobnit čísi snahu o hodnoty a přitom využít jejich vlastní potenciál ve vlastní prospěch na úkor prospěchu těch **"nejvyzrálejších"**, neboli původních autorů, či činitelů ražby.
+
+Tento proces má počátky v obdobích dávno před vznikem uvědomělých bytostí, za které může být považován člověk, pes, kočka, lemur a různí opi, či sloni a jiné bytosti na této planetě schopné sebereflexe. Takže si položme otázku, co je to sebereflexe.
+
+Reflektivní znamená schopnost uvědomění si situací zpětně. Reflexe jako slovo, znamená odrazivost, nebo odražení. Odrazivost sama o sobě nemusí nutně znamenat opomenutí faktorů jiných, než sebe sama. Reflektovat -- tudíž vracet příspěvek můžeme i v podobě náhledu nejen na sebe sama, ale i na okolnosti a osoby příslušející našemu okoli. To že se vždy a většinou nesetkáme s pozitivní vazbou, je pojmenováno jako nepochopení. Častěji však máme problém chápat sami sebe, jako podobraz dění okolního a chtěli bychom tak vyčítat vlastní nedostatky ohledně našeho chápání obrazu věcí okolních našemu okolí. V tuto chvíli však nastává a vyvstává nový pojem, nesoucí název normalizace.
